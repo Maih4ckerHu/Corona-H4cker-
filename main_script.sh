@@ -8,8 +8,26 @@ echo '
 
               
                  Get COVID-19 Cases
-         Script Re-designed by Expert Hacker
-            www.Youtube.com/Expert Hacker
+         Script Re-designed by H4cker
+            Jay Baba Shobhnath .. jbsn
+                     ..
+                                        dP/$.
+                                        $4$$%
+                                      .ee$$ee.
+                                   .eF3??????$C$r.        .d$$$$$$$$$$$e.
+.zeez$$$$$be..              Lo Aa Gya List .. #kazoo(H4cker)     d$$$FCLze.CC?$$$e
+    """??$$$$$$$$ee..         .e$$$e$CC$???$$CC3e$$$$.  $$$/$$$$$$$$$.$$$$
+           `"?$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$b $$"$$$$P?CCe$$$$$F
+                "?$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$b$$J?bd$$$$$$$$$F"
+                    "$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$d$$F"
+                       "?$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$"...
+                           "?$$$$$$$$$$$$$$$$$$$$$$$$$F "$$"$$$$b
+                               "?$$$$$$$$$$$$$$$$$$F"     ?$$$$$F
+                                    ""????????C"
+                                    e$$$$$$$$$$$$.
+                                  .$b CC$????$$F3eF
+                                4$bC/%$bdd$b@$Pd??Jbbr
+                                 ""?$$$$eeee$$$$F?" 
            
              ' |lolcat
 
